@@ -45,6 +45,8 @@ Thank you for considering me for your next big project! As someone who is consta
 # 🤝🏾  Let's Connect!
 To learn more about my experience, qualifications, and areas of expertise, my social media details can be found in my profile.
 
+📫 How to reach me: - Twitter: https://twitter.com/NgcebzB, - LinkedIn: https://www.linkedin.com/in/nongcebo-buthelezi/, 
+
 Thank you for visiting my profile! 😃 
 
 
